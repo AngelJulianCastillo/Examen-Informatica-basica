@@ -1,1 +1,0 @@
-# Examen-Informatica-basica
